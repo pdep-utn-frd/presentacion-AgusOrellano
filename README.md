@@ -8,4 +8,5 @@ ___
 - Tengo 21 años, soy de Capilla del Señor. No piensen que es el medio de la nada, es a 25km de Campana. 
 - Vivo con mis papas y mi hermana.
 - Me gustan mucho los autos y el tenis.
-- Estoy cursando materias de 2do.
+- Estoy cursando materias de 2do de ingeniería en Sistemas de Información.
+- Trabajo de delivery en una heladeria.
